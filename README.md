@@ -1,0 +1,1 @@
+# -Corel-PaintShop-Pro-25.0.0.122
